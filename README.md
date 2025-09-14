@@ -1,3 +1,3 @@
 # Discovery-Piscine-women
 
-#42 Madrid - Fundación Telefónica - Piscine Discovery Web - Women's Edition - 2022-10-28.png
+#42 Madrid - Fundación Telefónica - Piscine Discovery Web - Women's Edition - 2022
